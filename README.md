@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Technical support agent at @NecronHost<br>🌱 I’m currently learning
+🔭 Currently working with @NecronHost<br>🌱 I’m currently learning
 
 
 ## 🌐 Socials:
